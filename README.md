@@ -1,1 +1,1 @@
-# Practical-17
+# Practical-17 Стрелков
